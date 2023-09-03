@@ -1,4 +1,4 @@
-# bible-on-fenya
+# bible-on-fenya ( beta )
 Библия на Фене (азбуке зэка)
 
 тг автора - https://t.me/+R_3GAf8CcgcxYjIy
