@@ -3,6 +3,6 @@
 
 тг автора - https://t.me/+R_3GAf8CcgcxYjIy
 
-переводчик - https://censor.net/ru/resonance/927/fenya__azbuka_zeka_banditskorusskiyi_slovar
+переводчик - https://imwerden.de/pdf/tolkovy_slovar_ugolovnykh_zhargonov_1991__ocr.pdf
 
 за основу взят НРП перевод
